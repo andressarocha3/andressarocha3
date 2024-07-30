@@ -12,4 +12,4 @@ andressa.sobczak.rocha@escola.pr.gov.br
 
 andressa.sobczak.rocha@escola.pr.gov.br
 
-! [] (https://tenor.com/pt-BR/view/loveyou-kiss-gif-23172038)
+![](https://tenor.com/pt-BR/view/loveyou-kiss-gif-23172038)
